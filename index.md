@@ -1,4 +1,4 @@
-## Welcome to GitHub Pages
+## Tempus Edax Rerum
 
 You can use the [editor on GitHub](https://github.com/kleutchit/keyclimbs.com/edit/gh-pages/index.md) to maintain and preview the content for your website in Markdown files.
 
