@@ -7,6 +7,8 @@ Inspired by https://jeremymaluf.com/onebag/
 [OneBag](https://lighterpack.com/r/or854i)
 #IDEAS
 
+Allegory of the Cave
+
 無爲 Wu wei
 
 生き甲斐 Ikigai
