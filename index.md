@@ -2,6 +2,8 @@
 Inspired by https://jeremymaluf.com/onebag/
 "Those who do not want to imitate anything, produce nothing."
 ― Salvador Dalí
+“This is how it is with insomnia. Everything is so far away, a copy of a copy of a copy. The insomnia distance of everything, you can't touch anything and nothing can touch you”
+― Chuck Palahniuk, Fight Club
 
 [OneBag](https://lighterpack.com/r/or854i)
 
