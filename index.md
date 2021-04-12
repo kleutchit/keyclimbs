@@ -21,9 +21,17 @@ The Glass is half full of air and half full of water
 
 Free Will
 https://blogs.scientificamerican.com/observations/yes-free-will-exists/
+
+
 https://philosophybreak.com/articles/free-will-illusion-sam-harris/#:~:text=Will%2C%20Harris%20writes%3A-,Free%20will%20is%20an%20illusion.,freedom%20we%20think%20we%20have.
+
+
 Free will is an illusion
 Do we have Free Will?
 
---
+
+Hedgehog's_dilemma
+
+
+-- Namaste
 Constantly going thru an existential crisis @keyclimbs send memes
