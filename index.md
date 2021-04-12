@@ -21,3 +21,5 @@ Free Will
 https://blogs.scientificamerican.com/observations/yes-free-will-exists/
 Do we have Free Will?
 
+--
+Constantly going thru an existential crisis
