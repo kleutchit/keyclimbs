@@ -12,6 +12,15 @@ Allegory of the Cave
 無爲 Wu wei
 
 生き甲斐 Ikigai
+Mission, Passion, Profession, Vocation
+What do you 
+LOVE
+What does the world 
+NEEDS
+What can you be 
+PAID FOR
+What are you  
+GOOD AT
 
 改善, かいぜん Kaizen
 
