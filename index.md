@@ -1,11 +1,11 @@
-## Ouroboros
+### Ouroboros
 Inspired by https://jeremymaluf.com/onebag/
 "Those who do not want to imitate anything, produce nothing."
 ― Salvador Dalí
 
 
 [OneBag](https://lighterpack.com/r/or854i)
-
+#IDEAS
 
 無爲 Wu wei
 
@@ -30,8 +30,10 @@ Free will is an illusion
 Do we have Free Will?
 
 
-Hedgehog's_dilemma
+Hedgehog's dilemma
 
 
--- Namaste
+#-- Namaste
+
+
 Constantly going thru an existential crisis @keyclimbs send memes
