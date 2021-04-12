@@ -17,6 +17,7 @@ Inspired by https://jeremymaluf.com/onebag/
 RAS - reticular activating system
 "If you change the way you look at things, the things you look at change."
 -Wayne Dyer
+The Glass is half full of air and half full of water
 
 
 Free Will
@@ -24,4 +25,4 @@ https://blogs.scientificamerican.com/observations/yes-free-will-exists/
 Do we have Free Will?
 
 --
-Constantly going thru an existential crisis
+Constantly going thru an existential crisis HMU @keyclimbs
