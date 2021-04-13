@@ -1,4 +1,4 @@
-### Ouroboros
+### Ouroboros🐍 
 Inspired by https://jeremymaluf.com/onebag/
 "Those who do not want to imitate anything, produce nothing."
 ― Salvador Dalí
@@ -44,7 +44,7 @@ Do we have Free Will?
 Hedgehog's dilemma
 
 
-#-- Namaste
+##-- Namaste
 
 
-Constantly going thru an existential crisis @keyclimbs send memes
+Constantly going thru an existential crisis @keyclimbs send memes/ideas😃
