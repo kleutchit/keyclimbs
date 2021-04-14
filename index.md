@@ -6,6 +6,11 @@ Inspired by https://jeremymaluf.com/onebag/
 
 [OneBag](https://lighterpack.com/r/or854i)
 #IDEAS
+Ouroboros
+
+"Time is a flat circle..." -  True Detective
+
+Eternal Return
 
 Allegory of the Cave
 
@@ -49,7 +54,7 @@ Neurons that fire together wire together
 
 Self-fulfilling prophecy
 
--- Namaste
+⭕️-- Namaste
 
 
 Constantly going thru an existential crisis @keyclimbs send memes/ideas😃
