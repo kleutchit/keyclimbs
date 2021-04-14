@@ -38,13 +38,18 @@ https://philosophybreak.com/articles/free-will-illusion-sam-harris/#:~:text=Will
 
 
 Free will is an illusion
+
 Do we have Free Will?
 
 
 Hedgehog's dilemma
 
 
-##-- Namaste
+Neurons that fire together wire together
+
+
+
+-- Namaste
 
 
 Constantly going thru an existential crisis @keyclimbs send memes/ideas😃
