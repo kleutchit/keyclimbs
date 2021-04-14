@@ -50,7 +50,6 @@ Neuroplasticity Neurons that fire together wire together
 
 Self-fulfilling prophecy - LOA - Law Of Attraction
 
-⭕️-- Namaste
 
 
 Constantly going thru an existential crisis @keyclimbs send memes/ideas😃
