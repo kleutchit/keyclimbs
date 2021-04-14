@@ -1,4 +1,5 @@
 [Travel](./moar.html).
+[Travel](./thai.html).
 
 #Ideas That Resonate with me
 Ouroboros
