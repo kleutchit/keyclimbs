@@ -47,7 +47,7 @@ Hedgehog's dilemma
 
 Neurons that fire together wire together
 
-
+Self-fulfilling prophecy
 
 -- Namaste
 
