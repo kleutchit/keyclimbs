@@ -50,9 +50,9 @@ Do we have Free Will?
 Hedgehog's dilemma
 
 
-Neurons that fire together wire together
+Neuroplasticity Neurons that fire together wire together
 
-Self-fulfilling prophecy
+Self-fulfilling prophecy - LOA - Law Of Attraction
 
 ⭕️-- Namaste
 
