@@ -1,4 +1,4 @@
-### Ouroboros🐍 
+[Link to another page](./moar.html).
 Inspired by https://jeremymaluf.com/onebag/
 "Those who do not want to imitate anything, produce nothing."
 ― Salvador Dalí
