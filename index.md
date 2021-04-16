@@ -1,6 +1,6 @@
-[Travel](./moar.html).
-[Thai](./thai.html).
-
+[Travel✈️](./moar.html).
+[Thai🇹🇭](./thai.html).
+[I'm possible✅](./impossible.html).
 #Ideas That Resonate with me
 Ouroboros
 
