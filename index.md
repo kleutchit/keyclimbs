@@ -38,7 +38,7 @@ The Glass is half full of air and half full of water
 
 
 - When we are no longer able to change a situation - we are challenged to change ourselves. Viktor E. Frankl
-
+- PTG post tramatic growth
 
 - Free Will
 https://blogs.scientificamerican.com/observations/yes-free-will-exists/
