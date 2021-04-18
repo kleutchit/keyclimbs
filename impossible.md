@@ -10,14 +10,13 @@ Thai
 10k
 Marathon
 
-
-Form an LLC and actually be a professional company that does business things and whatnot
-Save $900k dollars in order to have the option to live off of less than 4% – $36,000/yr 
-
-
+Climb in Thailand Greed
+https://www.youtube.com/watch?v=QlB_4tOJqZ4
+https://www.thecrag.com/en/climbing/thailand/krabi/route/17725117
 
 Places
 Climb a mountain with at least 3,000 ft. elevation change from base
+
 Climb a mountain with at least 5,000 ft. elevation change from base
 
 Sub 6 minute mile
