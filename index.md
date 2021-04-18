@@ -5,6 +5,11 @@ layout: default
 [Travel✈️](./moar.html).
 [Thai🇹🇭](./thai.html).
 [I'm possible✅](./impossible.html).
+```
+“You can’t connect the dots looking forward; you can only connect them looking backwards. So you have to trust that the dots will somehow connect in your future. You have to trust in something – your gut, destiny, life, karma, whatever. Because believing that the dots will connect down the road will give you the confidence to follow your heart even when it leads you off the well worn path; and that will make all the difference.”
+
+– Steve Jobs
+```
 
 # Ideas That Resonate with me
 Ouroboros
