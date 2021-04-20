@@ -18,9 +18,7 @@ to follow your heart even when it leads you off the well worn path; and that wil
 # Ideas That Resonate with me
 Ouroboros
 
-- "Time is a flat circle..." -  True Detective
-
-- Eternal Return
+- one must imagine sisyphus happy
 
 - Allegory of the Cave
 
