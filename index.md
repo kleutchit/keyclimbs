@@ -19,7 +19,7 @@ to follow your heart even when it leads you off the well worn path; and that wil
 Ouroboros
 
 - One must imagine Sisyphus happy
-
+- "I say never be complete, I say stop being perfect, I say let... lets evolve, let the chips fall where they may. "Fight Club
 - "Time is a flat circle. Listen, Nietzsche. Shut the fuck up" - True Detective
 
 - WE are the creators of our worlds, however solipsistic that may sound we decide the goodness/badness of a given idea or situation
