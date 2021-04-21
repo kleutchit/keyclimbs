@@ -18,7 +18,11 @@ to follow your heart even when it leads you off the well worn path; and that wil
 # Ideas That Resonate with me
 Ouroboros
 
-- one must imagine sisyphus happy
+- One must imagine Sisyphus happy
+
+- "Time is a flat circle. Listen, Nietzsche. Shut the fuck up" - True Detective
+
+- 
 
 - Allegory of the Cave
 
