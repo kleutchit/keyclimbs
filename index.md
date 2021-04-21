@@ -22,7 +22,8 @@ Ouroboros
 
 - "Time is a flat circle. Listen, Nietzsche. Shut the fuck up" - True Detective
 
-- 
+- WE are the creators of our worlds, however solipsistic that may sound we decide the goodness/badness of a given idea or situation
+- "“Men are disturbed not by things, but by the views which they take of things. - 	Epictetus" 
 
 - Allegory of the Cave
 
