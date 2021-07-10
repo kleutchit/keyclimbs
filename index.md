@@ -73,5 +73,5 @@ https://philosophybreak.com/articles/free-will-illusion-sam-harris/#:~:text=Will
 
 
 ```
-Constantly going thru an existential crisis @keyclimbs send memes/ideas😃
+Constantly going thru an [inventing and reinventing](./https://www.goodreads.com/quotes/997009-invent-yourself-and-then-reinvent-yourself-don-t-swim-in-the.html). @keyclimbs send memes/ideas😃
 ```
