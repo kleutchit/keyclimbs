@@ -72,6 +72,6 @@ https://philosophybreak.com/articles/free-will-illusion-sam-harris/#:~:text=Will
 - Self-fulfilling prophecy - LOA - Law Of Attraction
 
 
-```
+
 Constantly [inventing and reinventing](./yourself.html). @keyclimbs send memes/ideas😃
-```
+
