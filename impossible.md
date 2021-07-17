@@ -2,7 +2,6 @@
 
 
 Languages
-
 Japanese
 Thai
 
@@ -23,20 +22,14 @@ https://en.wikipedia.org/wiki/Mount_Rogers	5,730 ft (1,750 m)
 2nd highest mountian
 https://en.wikipedia.org/wiki/K2 8,610 m (28,250 ft) 
 https://en.wikipedia.org/wiki/Mauna_Kea 4,207.3 m (13,803 ft)
+
+
 Sub 6 minute mile
-
 Do 20 pull-ups in a single set
-
 Do 100 push-ups in a single set
 1000 pounds club
 
 
-Athletics
-
 Do a front lever
-- 1 min
-
-Do an Iron Cross (extremely advanced gymnastics move)
 
 
-Create and Inspire  😊
