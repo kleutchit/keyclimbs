@@ -10,5 +10,5 @@ layout: default
 
 [ideas💡](./ideas.html)
 
-Constantly [inventing and reinventing](./yourself.html). @keyclimbs send memes/ideas😃
+Constantly [inventing and reinventing](./yourself.html). 
 
