@@ -8,7 +8,7 @@ layout: default
 
 [ideas💡](./ideas.html)
 
-[languages](./languages.)
+[languages](./languages.html)
 
 Constantly [inventing and reinventing](./yourself.html).
 
