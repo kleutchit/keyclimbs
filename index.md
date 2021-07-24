@@ -2,13 +2,17 @@
 layout: default
 ---
 
-[Travel✈️](./moar.html).
+[travel✈️](./moar.html)
 
-[ไทย🇹🇭](./thai.html).
+[ไทย🇹🇭](./thai.html)
 
-[i'm possible✅](./impossible.html).
+[日本語](./日本語.html)
+
+[官话](./官话.html)
+
+[i'm possible✅](./impossible.html)
 
 [ideas💡](./ideas.html)
 
-Constantly [inventing and reinventing](./yourself.html). 
+Constantly [inventing and reinventing](./yourself.html).
 
