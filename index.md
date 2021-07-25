@@ -12,6 +12,8 @@ layout: default
 
 [poems](./poems.html)
 
+[computers](./computers.html)
+
 Constantly [inventing and reinventing](./yourself.html).
 
 
