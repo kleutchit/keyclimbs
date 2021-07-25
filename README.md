@@ -1,2 +1,3 @@
 Tempus Edax Rerum
-The constant everchange ideas and goals of keyclimbs
+
+The constant everchange ideas and aspirations of keyclimbs
