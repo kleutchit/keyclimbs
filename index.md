@@ -10,6 +10,8 @@ layout: default
 
 [languages](./languages.html)
 
+[poems](./poems.html)
+
 Constantly [inventing and reinventing](./yourself.html).
 
 
