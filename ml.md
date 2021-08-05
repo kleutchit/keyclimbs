@@ -1,11 +1,11 @@
-Machine Learning
-    Programming tools
+##Machine Learning
+    #Programming tools
         Jupyter Notebooks
         Conda
-    Data Management
+    #Data Management
         Data modeling
         Data cleaning
-    AWS
+    #AWS
         Sagemaker
         Glue
         S3
