@@ -66,4 +66,4 @@ https://philosophybreak.com/articles/free-will-illusion-sam-harris/#:~:text=Will
 
 - Develop the negatives
 
-- Hedonic Treadmil
+- Hedonic Treadmill
