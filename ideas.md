@@ -64,3 +64,6 @@ https://philosophybreak.com/articles/free-will-illusion-sam-harris/#:~:text=Will
 
 - Self-fulfilling prophecy - LOA - Law Of Attraction
 
+- Develop the negatives
+
+- Hedonic Treadmil
