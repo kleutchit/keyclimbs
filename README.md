@@ -7,7 +7,7 @@ Being happy is the goal, but greatness is my vision
 
 
 Reading list
-Baigvagita 
+Bhagavad Gita 
 The Upanashads
 Dao Te Ching
 
