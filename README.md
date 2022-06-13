@@ -12,4 +12,4 @@ The Upanashads
 Dao Te Ching
 
 
-How Much are you leaving on the dag gone table !!!!! - Goggins
+realize how much you are leaving on the table. I want everyone who follows me to fucking crush life & everything in it! !!!!! - Goggins
