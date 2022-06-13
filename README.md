@@ -10,3 +10,6 @@ Reading list
 Baigvagita 
 The Upanashads
 Dao Te Ching
+
+
+How Much are you leaving on the dag gone table !!!!! - Goggins
