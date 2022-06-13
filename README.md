@@ -10,6 +10,11 @@ Reading list
 Bhagavad Gita 
 The Upanashads
 Dao Te Ching
+12 Rules For Life 
+Beyond good and evil
+
+
+Nothing is good or bad but thinking makes it so.
 
 
 realize how much you are leaving on the table. I want everyone who follows me to fucking crush life & everything in it! !!!!! - Goggins
