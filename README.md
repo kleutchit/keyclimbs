@@ -14,6 +14,9 @@ Dao Te Ching
 Beyond good and evil
 
 
+The darkest nights produce the brightest stars.” — John Green 
+
+
 Nothing is good or bad but thinking makes it so.
 
 
