@@ -20,4 +20,16 @@ The darkest nights produce the brightest stars.” — John Green
 Nothing is good or bad but thinking makes it so.
 
 
+
+
 realize how much you are leaving on the table. I want everyone who follows me to fucking crush life & everything in it! !!!!! - Goggins
+
+
+Roots
+Laoian, Thai , Teochew
+
+Missed Events
+Learning to play the piano
+Learning Thai
+Learning Martial Arts
+
