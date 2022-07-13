@@ -5,6 +5,8 @@ The constant everevolving ideas and aspirations of keyclimbs
 
 Being happy is the goal, but greatness is my vision
 
+Some people never go crazy. What truly horrible lives they must lead. - Charles Bukowski
+
 
 Reading list
 Bhagavad Gita 
