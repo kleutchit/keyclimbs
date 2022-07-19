@@ -3,7 +3,7 @@ Tempus Edax Rerum
 The constant everevolving ideas and aspirations of keyclimbs
 
 
-Being happy is the goal, but greatness is my vision
+Being happy is the goal, but greatness is my vision -- Childish Gambino
 
 Some people never go crazy. What truly horrible lives they must lead. - Charles Bukowski
 
