@@ -88,6 +88,11 @@ https://philosophybreak.com/articles/free-will-illusion-sam-harris/#:~:text=Will
 - Self-fulfilling prophecy - LOA - Law Of Attraction
 
 
+- “We are the product of our mistakes. And, oftentimes, the lesson is sitting there right in front of our faces. It's there to be learned, but we miss it. "  -jocko
+- “We are products of our past, but we don't have to be prisoners of it.”  Rick Warren
+- http://www.whysanity.net/monos/goodwill3.html
+
+
 [ideas](./ideas.html)
 
 Constantly [inventing and reinventing](./yourself.html). @keyclimbs send memes/ideas😃
