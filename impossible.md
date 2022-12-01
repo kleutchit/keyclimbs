@@ -4,7 +4,7 @@
 
 
 Ultramarthon 
-50 miler
+[50 miler ](https://runsignup.com/Race/Results/86044/IndividualResult/SgTY?resultSetId=355261#U62731284)
 100 miler
 
 old pochmann
