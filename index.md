@@ -32,6 +32,7 @@ so that his place shall never be with those cold and timid souls who neither kno
 ```
 ```
 The impediment to action advances action. What stands in the way becomes the way
+- Marcus Aurelius 
 ```
 
 Constantly [inventing and reinventing](./yourself.html). @keyclimbs 
