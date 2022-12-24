@@ -2,10 +2,6 @@
 layout: default
 ---
 
-
-[Travel✈️](./moar.html).
-[Thai🇹🇭](./thai.html).
-[I'm possible✅](./impossible.html).
 ```
 “You can’t connect the dots looking forward; you can only connect them looking backwards. 
 So you have to trust that the dots will somehow connect in your future. 
@@ -31,9 +27,15 @@ so that his place shall never be with those cold and timid souls who neither kno
 - Theodore Roosevelt
 ```
 ```
-The impediment to action advances action. What stands in the way becomes the way
+"The impediment to action advances action. What stands in the way becomes the way"
 - Marcus Aurelius 
 ```
 
 Constantly [inventing and reinventing](./yourself.html). @keyclimbs 
+
+
+
+[Travel✈️](./moar.html).
+[Thai🇹🇭](./thai.html).
+[I'm possible✅](./impossible.html).
 
