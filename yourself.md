@@ -26,3 +26,8 @@ belong only to
 you.
 
 Charles Bukowski
+
+the same boiling water will turn a egg hard but the same water will turn a potato soft so you need to dictate your own environment 
+
+many men die at age 25 and are only buried at age 75
+
