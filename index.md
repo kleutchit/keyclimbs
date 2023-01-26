@@ -34,4 +34,3 @@ so that his place shall never be with those cold and timid souls who neither kno
 Constantly [inventing and reinventing](./yourself.html). @keyclimbs 
 
 
-[![ฟหกดวสาฟ่หกดฟหกด](https://hits.seeyoufarm.com/api/count/incr/badge.svg?url=https%3A%2F%2Fwww.keyclimbs.com&count_bg=%2379C83D&title_bg=%23555555&icon=&icon_color=%23E7E7E7&title=hits&edge_flat=false)]()
