@@ -30,6 +30,9 @@ so that his place shall never be with those cold and timid souls who neither kno
 "The impediment to action advances action. What stands in the way becomes the way"
 - Marcus Aurelius 
 ```
+```
+"Life can only be understood backward, but it must be lived forward." ~ Søren Kierkegaard, philosopher 
+```
 
 Constantly [inventing and reinventing](./yourself.html). @keyclimbs 
 
