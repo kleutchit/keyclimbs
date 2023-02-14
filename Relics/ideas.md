@@ -8,6 +8,8 @@ to follow your heart even when it leads you off the well worn path; and that wil
 – Steve Jobs
 ```
 
+things only matter because we give them meaning
+
 # Ideas That Resonate with me
 Ouroboros
 
