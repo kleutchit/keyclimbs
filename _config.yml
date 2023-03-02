@@ -1,4 +1,4 @@
 theme: jekyll-theme-hacker
-title: Ouroboros🐍
+title: Ouroboros.py🐍
 show_downloads: false
 gem "github-pages", group: :jekyll_plugins
