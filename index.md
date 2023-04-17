@@ -1,7 +1,10 @@
 ---
 layout: default
 ---
-
+```
+“So live your life so the fear of death can never enter your heart. Trouble no one about their religion; respect others in their views, and demand that they respect yours. Love your life, perfect your life, beautify all things in your life. Seek to make your life long and of service to your people. Prepare a noble death song for the day when you go over the great divide. Always give a word or sign of salute when meeting or passing a stranger if in a lonely place. Show respect to all people, but grovel to none. When you arise in the morning, give thanks for the light, for your life and strength. Give thanks for your food and for the joy of living. If you see no reason for giving thanks, the fault lies in yourself. Touch not the poisonous firewater that makes wise ones turn to fools and robs them of their visions. When your time comes to die, be not like those whose hearts are filled with fear of death, so that when their time comes they weep and pray for a little more time to live their lives over again in a different way. Sing your death song, and die like a hero going home.”
+Tecumseh
+```
 ```
 “You can’t connect the dots looking forward; you can only connect them looking backwards. 
 So you have to trust that the dots will somehow connect in your future. 
