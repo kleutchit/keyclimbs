@@ -51,4 +51,6 @@ so that his place shall never be with those cold and timid souls who neither kno
 
 Constantly [inventing and reinventing](./yourself.html). @keyclimbs 
 
+[Books](./books.html)
+
 
