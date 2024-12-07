@@ -1,5 +1,14 @@
+Reading
 The Secret Language of the body
 Feel-Good Productiveity by Ali Abdaal
+To Read
+You are the Placebo
+The Almanack of Naval Revikant
+
+
+
+Happiness, 3 Wealth, Health, Happiness Pursuited in order but valued in reverse
+
 
 
 Week 01	December 30, 2024	January 5, 2025
