@@ -8,7 +8,9 @@ The Almanack of Naval Revikant
 
 
 Happiness, 3 Wealth, Health, Happiness Pursuited in order but valued in reverse
+Happiness - flow? happiness is when nothing is missing internal silents
 
+https://www.navalmanack.com/navals-recommended-reading
 
 
 Week 01	December 30, 2024	January 5, 2025
